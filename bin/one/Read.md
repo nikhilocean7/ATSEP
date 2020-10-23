@@ -1,3 +1,0 @@
-#Nikhil#
-TimeNow
-NDTV
